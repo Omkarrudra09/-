@@ -4,7 +4,7 @@
 
 <h4 align="center"> ʟᴏᴛᴏᴜs ꪎ ᴍᴇɴᴛɪᴏɴ ᴀ ᴘᴏᴡᴇʀғᴜʟʟ , sᴍᴀʀᴛ ᴀɴᴅ sɪᴍᴘʟᴇ ᴀɴᴅ sᴍᴀʀᴛ ᴍᴇɴᴛɪᴏɴ ʙᴏᴛ <br> ... ᴡʀɪᴛᴛᴇɴ ᴡɪᴛʜ ᴘʏᴛʜᴏɴ ᴀɴᴅ ᴛᴇʟᴇᴛʜᴏɴ ...</h4>
 
-<p align="center"><a href="https://t.me/Rudra0_9_1"><img src="https://te.legra.ph/file/29626078a1324cf58ce2a.jpg" width="400"></a></p>
+<p align="center"><a href="https://t.me/Rudra0_9_1"><img src="https://telegra.ph/Goku-02-11-3" width="400"></a></p>
 
 <p align="center">
    
